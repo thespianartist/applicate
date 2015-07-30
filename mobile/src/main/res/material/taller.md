@@ -1,4 +1,10 @@
 
+
+
+Uriel Ramirez @thespianartist
+u@platzicom
+
+
 1) Agregando Librerias:
 
 
